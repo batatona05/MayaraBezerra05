@@ -11,6 +11,6 @@ Estou desenvolvendo estudos de tecnologia e programação
 
 ⚡bezerramayara466@gmail.com <--
 
-![](https://medial1.tenor.com/m/YxXn07ofanQAAAAC/patrick-star-in-love.gif)
+![](https://medial1.tenor.com/m/YxXn07ofanQAAAAC/patrick-star-in-love.gif
 
 
